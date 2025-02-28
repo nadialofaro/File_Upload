@@ -8,6 +8,6 @@ links for CineCer0
 
 Available samples:
 Windchimes
-Wind
+Wind0
 
 
