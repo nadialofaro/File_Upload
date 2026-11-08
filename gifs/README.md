@@ -1,6 +1,6 @@
 ## gif files
 
-Here lie my graveyard of peanutbutter jifs, each of which have been hancrafted by moi with utmost care and love
+Here lies my graveyard of peanutbutter jifs, each of which have been hancrafted by moi with utmost care and love
 
 
 SPACE CONTENT
